@@ -1,2 +1,0 @@
-# Aero-FitWear
-EARNED, NOT BOUGHT
